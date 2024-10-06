@@ -1,0 +1,42 @@
+<!DOCTYPE html>
+<html lang="en">
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>Meal Ideas Grocery List</title>
+    <link rel="stylesheet" href="style.css">
+</head>
+<body>
+    <div class="container">
+        <h1>Meal Ideas Grocery List</h1>
+
+        <div class="meal-selector">
+            <h2>Select Meals:</h2>
+            <label>
+                <input type="checkbox" class="meal-option" value="Spaghetti" data-ingredients="Pasta, Tomato Sauce, Garlic, Olive Oil, Parmesan"> Spaghetti
+            </label>
+            <label>
+                <input type="checkbox" class="meal-option" value="Tacos" data-ingredients="Tortillas, Ground Beef, Lettuce, Tomato, Cheese, Salsa"> Tacos
+            </label>
+            <label>
+                <input type="checkbox" class="meal-option" value="Chicken Salad" data-ingredients="Chicken, Lettuce, Cucumber, Tomatoes, Olive Oil, Salt"> Chicken Salad
+            </label>
+            <label>
+                <input type="checkbox" class="meal-option" value="Stir Fry" data-ingredients="Chicken, Broccoli, Bell Peppers, Soy Sauce, Garlic, Rice"> Stir Fry
+            </label>
+            <label>
+                <input type="checkbox" class="meal-option" value="Pancakes" data-ingredients="Flour, Eggs, Milk, Baking Powder, Maple Syrup, Butter"> Pancakes
+            </label>
+        </div>
+
+        <button id="generate-list">Generate Grocery List</button>
+
+        <div class="grocery-list">
+            <h2>Grocery List:</h2>
+            <ul id="grocery-items"></ul>
+        </div>
+    </div>
+
+    <script src="app.js"></script>
+</body>
+</html>
