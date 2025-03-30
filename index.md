@@ -10,8 +10,8 @@ I’m a software engineer with a passion for clean code and interesting project 
 
 Here’s where I’ll be dropping my latest ramblings. Want to keep up? Subscribe via [RSS](#) (link coming soon—I’m still setting that up!). For now, check out these highlights:
 
-- **Scipture to Memory(#)**: A quick intro to scripture memorization!  *(Coming soon!)*
-- **Building a Blog in the GitHub Mobile App**: Lessons learned after round one: this will save you time and money. *(Drafting this one.)*
+- **[Scipture to Memory](#)**: A quick intro to scripture memorization!  *(Coming soon!)*
+- **[Building a Blog in the GitHub Mobile App]**: Lessons learned after round one: this will save you time and money. *(Drafting this one.)*
 
 ## What’s Next?
 
