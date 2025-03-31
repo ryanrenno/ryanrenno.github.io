@@ -1,59 +1,30 @@
 ---
 layout: post
-title:  "The Greatest Story Ever Told!"
+title: "Sermon Notes: The Prodigal Son and God’s Heart - March 30, 2025"
+date: 2025-03-30
 ---
 
-#Luke 15:11
+Yesterday, March 29, 2025, I sat in church scribbling notes on my iPhone as the pastor unpacked Luke 15:11-32—the Parable of the Prodigal Son. He called it “The Greatest Story Ever Told,” and I get why. It’s about two lost sons, a father’s wild love, and a question: Where are you in this story? Here’s what I took away, cleaned up from my messy taps.
 
-“Jesus continued: “There was a man who had two sons. The younger one said to his father, ‘Father, give me my share of the estate.’ So he divided his property between them. “Not long after that, the younger son got together all he had, set off for a distant country and there squandered his wealth in wild living. After he had spent everything, there was a severe famine in that whole country, and he began to be in need. So he went and hired himself out to a citizen of that country, who sent him to his fields to feed pigs. He longed to fill his stomach with the pods that the pigs were eating, but no one gave him anything. “When he came to his senses, he said, ‘How many of my father’s hired servants have food to spare, and here I am starving to death! I will set out and go back to my father and say to him: Father, I have sinned against heaven and against you. I am no longer worthy to be called your son; make me like one of your hired servants.’ So he got up and went to his father. “But while he was still a long way off, his father saw him and was filled with compassion for him; he ran to his son, threw his arms around him and kissed him. “The son said to him, ‘Father, I have sinned against heaven and against you. I am no longer worthy to be called your son.’ “But the father said to his servants, ‘Quick! Bring the best robe and put it on him. Put a ring on his finger and sandals on his feet. Bring the fattened calf and kill it. Let’s have a feast and celebrate. For this son of mine was dead and is alive again; he was lost and is found.’ So they began to celebrate. “Meanwhile, the older son was in the field. When he came near the house, he heard music and dancing. So he called one of the servants and asked him what was going on. ‘Your brother has come,’ he replied, ‘and your father has killed the fattened calf because he has him back safe and sound.’ “The older brother became angry and refused to go in. So his father went out and pleaded with him. But he answered his father, ‘Look! All these years I’ve been slaving for you and never disobeyed your orders. Yet you never gave me even a young goat so I could celebrate with my friends. But when this son of yours who has squandered your property with prostitutes comes home, you kill the fattened calf for him!’ “ ‘My son,’ the father said, ‘you are always with me, and everything I have is yours. But we had to celebrate and be glad, because this brother of yours was dead and is alive again; he was lost and is found.’ ””
-‭‭Luke‬ ‭15‬:‭11‬-‭32‬ ‭NIV‬‬
-https://bible.com/bible/111/luk.15.11-32.NIV
+### The Setup: A Shocking Request
+The younger son demands his inheritance early—unheard of back then. It’s like saying, “Dad, I wish you were dead; give me my stuff.” And the father? He does it. No other father would. The pastor said this mirrors God’s freedom: He lets us choose to love Him or walk away. The son bolts, squanders it all on “wild living,” and ends up feeding pigs—a shameful low for a Jewish kid, longing to eat their slop.
 
-The Greatest Story Ever Told
+### The Turn: Coming to His Senses
+Luke 15:18-19 hit me: “Father, I have sinned against heaven and against you. I am no longer worthy to be called your son; make me like one of your hired servants.” He’s broken, ready to grovel. But then, verse 20 flips it: “While he was still a long way off, his father saw him and was filled with compassion for him; he ran to his son.” A Middle Eastern nobleman *running*? That’s wild. Men didn’t run—people ran *to* them. This is God’s heart: chasing us down, kissing us over and over (v. 20), before we can even finish our apology.
 
-Living at Home is a Burden
+### The Father’s Response: Extravagant Love
+The son starts his “I’ve sinned” speech, but the father cuts him off: “Quick! Bring the best robe… ring… sandals… fatted calf. Let’s feast!” (vv. 22-24). Meat was a delicacy; slaying the fatted calf was a huge, costly deal. The pastor leaned in here: God doesn’t want us as servants—He wants us as sons and daughters. A.W. Tozer was quoted: “What people think about God shows their faith.” Jesus calls Him Father, majestic yet loving, always seeing our need for Him.
 
-It was unheard of for a son to ask his Father for an inheritance.
-The Father did what no other Father ever did. He gave it to the son.
-God gives us the freedom to love Him or reject Him.
+### The Older Brother: Lost in Goodness
+Then there’s the older son, fuming outside the party (vv. 25-28). He’s mad: “I’ve slaved for you, never disobeyed, and you never gave me a goat! But this son of yours gets a calf?” He insults the father with “Look!” and humiliates him by not joining the feast. The pastor said this is forced obedience, not a right heart—God won’t force the door open. The father’s reply (v. 31): “My son, you are always with me, and everything I have is yours.” Yet the older son’s sin is pride—he thinks God owes him.
 
-It was forbidden to eat with a pig. He was a pig hurder which would have brought great shame.
+### The Twist: Both Sons Are Lost
+Here’s the kicker: both sons are alienated. The younger wants the father’s wealth through badness; the older through goodness. One’s a rebel, the other’s proud. The pastor asked, “Which are you?” I scribbled: *Be undone by what it costs God to bring you home.* Why the nasty older brother? To point us to the true one—Jesus. He cried, “My God, my God,” on the cross (the only time He didn’t say “Father”), taking the cost to bring us back.
 
-verse 18: Father I have sinned against Heaven and I sinned against you. Let me be your hired servant.
+### My Take
+This parable and David's message are so impactful and rich with thought provoking insights. I’ve been the younger son, chasing my own way—like building this site on my iPhone just to prove I could. But I’ve also been the older, coasting through life trying to conserve a false image or idol rather in  “being good.” but who I want to be is more like God, the father running to his son! That’s the heart of God! Where am I? I put my faith in Christ and know with self discipline, covenants with Christ, and the work of the Holy Spirit living in me, my idols are being removed and Jesus shines through more and more. I hope you are putting your faith in Him too!
 
-Luke 15:20: A middle eastern man never ran. people ran to them. he was a noble man.
-this is the heart of God
+### Your Turn
+Which character do you see yourself in—the rebel, the rule-keeper, or maybe the father learning to love like that? Hit me up on [X @ryanrenno] if you’ve got thoughts. I might keep posting these sermon notes—they’re making me think.
 
-A.W. Towzer - what people think about God is telling of their faith. Jesus always addresses God as Father. for all God's majesty, power, He is loving and only sees his children and their need for Him.
-
-the Father in the story kisses his son over and over. God doeowant you to live as a servant. he wants to love you as a son or daughter.
-
-The son said, Father, I have sinned against heaven and against you. 
-
-could the son have been absolutely surprised by his father's acceptance of him. the son may not have known what was really in his father's heart for him until now.
-
-luke 15:22-24 The father rolled it all in.
-
-older son says, why, father says it is because your brother was lost and now he is fun.
-
-which character do you identify with? and then will you become like the Father or will you become the older brother?
-
-meat was a delicacy and slaying the fatted calf was a huge and very expensive event!
-
-the older son insulted his father by saying, "Look!"
-
-he humiliated his Father by not coming to the party. the Father had to come out to him. God wants a right heart, not forced obedience. God will not force the door open.
-
-Luke 15:31 The Father responds with love. my son...
-
-The sin of the older brother is that he thinks God owes him.
-
-both sons are alienated from the Father. They both want the wealth. they are both lost, one in badness and one in goodness. the good son is proud. he thinks the Father owns him.
-
-be undone by what it costs for God to bring you home. Why does Jesus give us a nasty older brother.
-
-what does a true older brother do? We have Jesus.
-
-Jesus says my God my God. it was the only time. God brought us home at the expense of himself.
-
-where are you?
+*Read the full story in [Luke 15:11-32 (NIV)](https://bible.com/bible/111/luk.15.11-32.NIV).*
