@@ -13,8 +13,6 @@ The Greatest Story Ever Told
 
 Living at Home is a Burden
 
-What is a Protical?
-
 It was unheard of for a son to ask his Father for an inheritance.
 The Father did what no other Father ever did. He gave it to the son.
 God gives us the freedom to love Him or reject Him.
