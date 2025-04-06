@@ -25,4 +25,12 @@ Jesus ends the parable with a zinger (verse 8): “When the Son of Man comes, wi
 
 ### Reflection: What Am I Giving Up On?
 
-This hit me. What have I stopped praying for that God wants me to keep at? Friends who don’t know Him? Healing for someone? Maybe even this blog—sharing these notes feels small ​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​​
+This hit me. What have I stopped praying for that God wants me to keep at? Friends who don’t know Him? Healing for someone? Maybe even this blog—sharing these notes feels small, but what if it’s part of something bigger? The pastor asked, “What does God want you to pray for and not give up on right now?” I’m still figuring that out.
+
+### Sneak Peek: Pharisee vs. Tax Collector
+
+The next story (Luke 18:9-14) tees up two guys praying. A Pharisee brags, “Thank You I’m not like those sinners!” A tax collector just begs, “God, have mercy on me, a sinner.” Verse 14: the tax collector walks away justified, not the Pharisee. Humility beats self-righteousness every time. More on that next week—I’ll save it for another post.
+
+### Wrapping Up
+
+Prayer’s not a vending machine; it’s a lifeline. God’s not an annoyed judge—He’s a Father who cares. I’m challenged to keep praying, even when it’s hard. What about you? What’s on your prayer list that’s gathering dust? Hit me up on [X @ryanrenno] if you’ve got thoughts—I’m loving how these sermons keep stirring me up.
