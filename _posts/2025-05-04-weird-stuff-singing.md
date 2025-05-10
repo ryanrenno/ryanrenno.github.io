@@ -20,6 +20,6 @@ There’s something about hearing our voices together. The pastor said it promot
 
 ### Why It Hits Me
 
-I’ll be honest—sometimes I mumble through worship, distracted or shy. But today’s message flipped that. Singing isn’t just a warm-up act; it’s a way to lean into God’s Spirit, stand with my church family, and trust Jesus more. I’m thinking about those moments I feel stuck, like Paul and Silas in chains. Maybe singing’s my way out—not for an earthquake, but for peace.
+I don't always give it my all and worship God with the honor and glory He deserves. But today’s message flipped that. Singing isn’t just a warm-up act; it’s a way to lean into God’s Spirit, stand with my church family, and trust Jesus more. I’m thinking about those moments I feel stuck, like Paul and Silas in chains. Maybe singing’s my way out—not for an earthquake, but for peace.
 
 What about you? Does singing shift something in you, or is it just “weird Christian stuff”? Hit me up on [X @ryanrenno](https://x.com/ryanrenno). These sermon notes keep stirring me up—let’s keep talking.
