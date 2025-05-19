@@ -30,7 +30,7 @@ The pastor got practical, asking if we’re praying together for stuff like:
 - Healing broken relationships, finding a spouse, or blessing our kids.
 - Help with school, work, or health.
 
-I’m challenged here. I want to share my faith—like with my nephew, who’s got a silly streak like me—but I don’t always pray for boldness. And I lean on solo prayers when praying with others could spark something bigger.
+I’m challenged here. I want to share my faith, but I don’t always pray for boldness. And I lean on solo prayers when praying with others could spark something bigger.
 
 ### Prayer as a First Instinct
 
