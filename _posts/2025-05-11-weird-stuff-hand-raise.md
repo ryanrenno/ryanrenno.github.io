@@ -24,6 +24,6 @@ The real question isn’t “Are you raising your hands?” but “Is your heart
 
 ### My Takeaway
 
-This made me rethink worship. I cheer like crazy when my nephew scores a soccer goal (he’s got a silly sense of humor like me, by the way), but I hold back in church. Why? Maybe I’m scared of looking “weird.” But if David can dance before God, I can lift a hand or two. It’s not about the motion—it’s about my heart saying yes to Jesus.
+This made me rethink worship. I cheer like crazy when my boys make amazing plays on the baseball diamond but I don't behave this way in church. Why? Maybe I’m scared of looking “weird.” But if David can dance before God, I can lift a hand or two. It’s not about the motion—it’s about my heart saying yes to Jesus.
 
 What about you? Do you go all-in during worship, or does it feel awkward? Let’s talk about it on [X @ryanrenno](https://x.com/ryanrenno). This series is challenging me to rethink what it means to follow Jesus—stay tuned for more.
