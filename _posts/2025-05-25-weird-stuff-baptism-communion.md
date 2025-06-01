@@ -16,4 +16,18 @@ The word “baptism” means to dip, dunk, or immerse—think plunging into wate
 
 ### Communion: A Meal That Reminds Us
 
-Then there’s communion, from Matthew 26:26-28 and 1 Corinthians 11:17-34
+Then there’s communion, from Matthew 26:26-28 and 1 Corinthians 11:17-34. Jesus took bread and wine, saying, “This is my body… my blood, poured out for the forgiveness of sins.” The pastor listed what communion does:
+- Reminds us Jesus died in our place.
+- Nourishes us spiritually.
+- Unites believers as one body.
+- Affirms Jesus’ love and the blessings of salvation.
+- Calls us to examine our lives, confess sin, and find forgiveness.
+- Restores our souls as we proclaim His death until He returns.
+
+It’s not just crackers and juice—it’s a moment to pause, reflect, and reconnect with Jesus. I’ve taken communion plenty, but sometimes I rush through it. This made me want to slow down, really think about His sacrifice.
+
+### Why It Matters to Me
+
+Baptism and communion aren’t “weird” when you see their heart. Baptism’s my public yes to Jesus, like telling my nephew (who’s got that silly streak I love) I’m all in for Christ. Communion’s my reset button, reminding me I’m forgiven even when I mess up. The pastor’s challenge: Make prayer your first instinct, not your last resort, when doubts or sin creep in. I’m working on that—praying more with others, like we talked about last week.
+
+What about you? Been baptized, or are doubts holding you back? Does communion hit different when you think about Jesus’ love? Hit me up on [X @ryanrenno](https://x.com/ryanrenno). This series is making me see faith in a new light—more to come!
