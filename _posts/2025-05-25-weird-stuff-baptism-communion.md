@@ -28,6 +28,6 @@ It’s not just crackers and juice—it’s a moment to pause, reflect, and reco
 
 ### Why It Matters to Me
 
-Baptism and communion aren’t “weird” when you see their heart. Baptism’s my public yes to Jesus, like telling my nephew (who’s got that silly streak I love) I’m all in for Christ. Communion’s my reset button, reminding me I’m forgiven even when I mess up. The pastor’s challenge: Make prayer your first instinct, not your last resort, when doubts or sin creep in. I’m working on that—praying more with others, like we talked about last week.
+Baptism and communion aren’t “weird” when you see their heart. Baptism’s my public yes to Jesus, I’m all in for Christ. Communion’s my reset button, reminding me I’m forgiven even when I mess up. The pastor’s challenge: Make prayer your first instinct, not your last resort, when doubts or sin creep in. I’m working on that—praying more with others, like we talked about last week.
 
 What about you? Been baptized, or are doubts holding you back? Does communion hit different when you think about Jesus’ love? Hit me up on [X @ryanrenno](https://x.com/ryanrenno). This series is making me see faith in a new light—more to come!
