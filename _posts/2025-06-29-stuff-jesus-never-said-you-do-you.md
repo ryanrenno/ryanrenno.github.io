@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Sermon Notes: Things Jesus Never Said - Some Phrases - June 29, 2025"
+title: "Sermon Notes: Things Jesus Never Said - You do you - June 29, 2025"
 date: 2025-06-29
 ---
 
